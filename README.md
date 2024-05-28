@@ -19,7 +19,8 @@
 
 - ⚡ Fun fact **i am talkative and funny**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:
+               jadala.renusri@gmail.com</h3>
 <p align="left">
 </p>
 
